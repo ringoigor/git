@@ -1,2 +1,0 @@
-Igor Abasev
-Katy Leonova
